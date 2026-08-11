@@ -1,1 +1,2 @@
-montenegro me dijo que es novio de tizi 
+readme troll G + S
+
